@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋Asslam U ALikum , I’m @Kawish-Zia-2826<br>👀 I’m interested in LAW,CS and Cyber Sequrity,AI,Web and App and amazon ...<br>🌱 I’m currently learning Genrative AI at Governor House, Software Enginering in Polytechcnic institute Landhi,Mern Stack Development in SMIT ,Data Base in Colony Center and i am in 12th Standard...<br>💞️ I’m looking to collaborate on intership and scholar ship...<br>📫 How to reach me  ...<br>😄 Pronouns: ...<br>⚡ Fun fact: ...
+👋Asslam U ALikum , I’m @Kawish-Zia-2826<br>👀 I’m interested in LAW,CS and Cyber Sequrity,AI,Web and App and amazon ...<br>🌱 I’m currently learning Genrative AI at Governor House, Software Enginering in Polytechcnic institute Landhi,Mern Stack Development in SMIT ,Data Base in Colony Center and i am in 12th Standard...<br>💞️ I’m looking to collaborate on intership and scholar ship...<br>📫 How to reach me  +92(318-2826-092)<br>😄 Pronouns: ...<br>⚡ Fun fact: ...
 
 
 ## 🌐 Socials:
